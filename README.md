@@ -1,1 +1,1 @@
-Just some quirky CS kid
+Hello there traveler! I see you have made it to my Github page. Hopefull you enjoy the assortment of projects that I have, and am currently working on! My LinkedIn is [here](https://www.linkedin.com/in/kbettridge/) if you need to contact me. Have a good stay.
